@@ -1,4 +1,4 @@
-#  
+#  custom 3008 Script is the best 3008 Script, featuring auto-sell and god mode. Safe and powerful for all your needs.
 
 
 
